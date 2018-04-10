@@ -15,3 +15,13 @@
    Cultivate an extended period of listening to God in silence.
 1. *Actio:*  Articulate how your life needs to **change** because of your
    encounter with God through his word.
+
+# Weekly Rhythm
+
+* **Monday:**  Transcribe and contemplate sermon notes.
+* **Tuesday:**  Consult commentary on previous sermon passage.
+* **Wednesday:**  Lectio Divina on next sermon passage.
+* **Thursday:**  Lectio Divina on next sermon passage.
+* **Friday:**  Homiletics:  Scripture, Content
+* **Saturday:**  Homiletics:  Divisions, Subject, Aim
+* **Sunday:**  Homiletics:  Principles, Applications
